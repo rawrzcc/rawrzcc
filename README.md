@@ -16,3 +16,6 @@ $${\color{#76b760}୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧}$$ ㅤ</br>
 <a href="https://tsukkiii.atabook.org/?page=1">𝓪𝓽𝓪𝓫𝓸𝓸𝓴</a>
 
 <img src="https://file.garden/ad7E6gx5M13uwG93/Ekran%20g%C3%B6r%C3%BCnt%C3%BCs%C3%BC%202026-09-19%20212012.png" width="300" align="middle">
+<div align="center">
+  
+$\color{#931547}{ this }$ $\color{#931547}{ is }$ $\color{#931547}{ me. }$ ㅤ</br>
